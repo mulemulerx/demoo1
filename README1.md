@@ -1,4 +1,4 @@
 #demo
 
-whats the plan
-where r u 
+whats the plan!
+where r u !
